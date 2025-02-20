@@ -2,7 +2,7 @@
 **Engenheiro Da Compitação**
 
 Me chamo Miguel Confortini, tenho 17 anos sou natural de São Paulo. concluí o ensino médio no Objetivo Prime. Atualmente
-, estou cursando Engenharia Da Computaçõa na MAUÁ.
+, estou cursando Engenharia Da Computaçõa na MAUÁ(IMT).
  Sou apaixonado por aprender novas tecnologia, Se quiser acompanhar minha jornada,
   me siga no Instagram: "[@miguel_confortini](https://www.instagram.com/miguel_confortini/). Bora crescer juntos!
 
